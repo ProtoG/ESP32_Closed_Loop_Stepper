@@ -13,3 +13,6 @@ Here is the digital Torque wrench that I used for motor torque testing:
 Wheeler Manual Firearms Accurizing Torque Wrench
 https://amzn.to/4nA49Kc
 
+Here is the hands free vice grip setup using clamps and locking pliers:
+Grip-On HFKIT 4-Piece Hands-Free Pliers & Grip Holder Set
+https://amzn.to/3G5cEvW
