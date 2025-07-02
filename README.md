@@ -10,6 +10,6 @@ BIGTREETECH S42C V1.1 Closed Loop Stepper Motor
 https://amzn.to/4et2ulk
 
 Here is the digital Torque wrench that I used for motor torque testing:
-https://amzn.to/4et2ulk
-
+Wheeler Manual Firearms Accurizing Torque Wrench
+https://amzn.to/4nA49Kc
 
